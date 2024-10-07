@@ -1,4 +1,4 @@
-# 💫 About Me:
+#About Me:
 Ima Manoj Kumar b r <br>Am currently pursuing my degree in Seshadripuram degree collage-mysore<br><br> 
 
 
